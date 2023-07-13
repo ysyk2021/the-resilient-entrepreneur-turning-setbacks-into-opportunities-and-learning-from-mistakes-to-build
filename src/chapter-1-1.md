@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Why Resilience is Critical for Entrepreneurial Success
+Why Resilience is Critical for Entrepreneurial Success
 ===============================================================================
 
 Entrepreneurship is a high-stakes endeavor that requires resilience in order to succeed. In this chapter, we will explore why resilience is critical for entrepreneurial success.

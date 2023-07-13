@@ -1,4 +1,4 @@
-Chapter 2: Understanding Resilience: Characteristics of Resilient Entrepreneurs
+Characteristics of Resilient Entrepreneurs
 ===============================================================================
 
 Resilience is an essential skill for any entrepreneur looking to weather setbacks and achieve long-term success. In this chapter, we will explore the characteristics of resilient entrepreneurs.

@@ -1,4 +1,4 @@
-Chapter 3: Building Resilience: Developing a Mindset of Resilience
+Developing a Mindset of Resilience
 ==================================================================
 
 Developing a mindset of resilience is an essential skill for any entrepreneur looking to weather setbacks and achieve long-term success. In this chapter, we will explore techniques for developing a mindset of resilience.

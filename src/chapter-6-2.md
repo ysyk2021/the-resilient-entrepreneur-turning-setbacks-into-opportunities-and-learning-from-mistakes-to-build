@@ -1,4 +1,4 @@
-Chapter 6: Adapting to Change: Leveraging Change as an Opportunity for Growth
+Leveraging Change as an Opportunity for Growth
 =============================================================================
 
 While change can be challenging, it can also present opportunities for growth and innovation. In this chapter, we will explore techniques for leveraging change as an opportunity for growth.

@@ -1,4 +1,4 @@
-Chapter 5: Managing Risk and Uncertainty: Strategies for Navigating Uncertainty
+Strategies for Navigating Uncertainty
 ===============================================================================
 
 Risk and uncertainty are inherent in entrepreneurship, but successful entrepreneurs are able to manage them effectively. In this chapter, we will explore strategies for managing risk and uncertainty and navigating uncertain situations.

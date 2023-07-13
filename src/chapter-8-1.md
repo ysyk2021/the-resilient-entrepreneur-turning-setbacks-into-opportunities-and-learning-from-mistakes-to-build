@@ -1,4 +1,4 @@
-Chapter 8: Maintaining Physical and Mental Well-Being: Prioritizing Self-Care and Well-Being
+Prioritizing Self-Care and Well-Being
 ============================================================================================
 
 Maintaining physical and mental well-being is essential for entrepreneurs looking to weather setbacks and challenges. In this chapter, we will explore the importance of prioritizing self-care and well-being.

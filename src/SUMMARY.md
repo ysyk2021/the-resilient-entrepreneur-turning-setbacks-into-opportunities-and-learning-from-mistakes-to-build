@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Why resilience is critical for entrepreneurial success](chapter-1-1.md)
 - [Chapter 2: Understanding Resilience](chapter-2.md)
   - [Defining resilience and its importance for entrepreneurs](chapter-2-1.md)

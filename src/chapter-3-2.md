@@ -1,4 +1,4 @@
-Chapter 3: Building Resilience: Techniques for Improving Resilience
+Techniques for Improving Resilience
 ===================================================================
 
 Building resilience is an essential skill for any entrepreneur looking to weather setbacks and achieve long-term success. In this chapter, we will explore techniques for improving resilience.

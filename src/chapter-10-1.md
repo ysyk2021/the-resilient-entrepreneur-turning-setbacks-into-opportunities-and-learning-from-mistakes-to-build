@@ -1,4 +1,4 @@
-Chapter 10: Measuring and Evaluating Resilience: Defining Metrics and KPIs
+Defining Metrics and KPIs
 ==========================================================================
 
 Measuring and evaluating resilience is essential for understanding its impact on business success and personal growth. In this chapter, we will explore techniques for defining metrics and Key Performance Indicators (KPIs) for measuring resilience.

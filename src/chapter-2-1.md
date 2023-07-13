@@ -1,4 +1,4 @@
-Chapter 2: Understanding Resilience: Defining Resilience and its Importance for Entrepreneurs
+Defining Resilience and its Importance for Entrepreneurs
 =============================================================================================
 
 Resilience is an essential skill for any entrepreneur looking to weather setbacks and achieve long-term success. In this chapter, we will define resilience and explore its importance for entrepreneurs.

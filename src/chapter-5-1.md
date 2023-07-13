@@ -1,4 +1,4 @@
-Chapter 5: Managing Risk and Uncertainty: Identifying and Managing Potential Risks
+Identifying and Managing Potential Risks
 ==================================================================================
 
 Risk and uncertainty are inherent in entrepreneurship, but successful entrepreneurs are able to manage them effectively. In this chapter, we will explore techniques for identifying and managing potential risks.

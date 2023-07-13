@@ -1,4 +1,4 @@
-Chapter 7: Cultivating a Supportive Network: Leveraging Support Networks During Challenging Times
+Leveraging Support Networks During Challenging Times
 =================================================================================================
 
 Cultivating a supportive network is essential for entrepreneurs looking to weather setbacks and challenges. In this chapter, we will explore the importance of support networks and techniques for leveraging them during challenging times.

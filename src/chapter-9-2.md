@@ -1,4 +1,4 @@
-Chapter 9: Overcoming Common Entrepreneurial Challenges: Balancing Short-Term and Long-Term Goals
+Balancing Short-Term and Long-Term Goals
 =================================================================================================
 
 Balancing short-term and long-term goals is a common challenge for entrepreneurs. In this chapter, we will explore why balancing these goals is important and techniques for overcoming this challenge.

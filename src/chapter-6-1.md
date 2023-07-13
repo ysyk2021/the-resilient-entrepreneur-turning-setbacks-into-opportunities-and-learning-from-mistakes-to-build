@@ -1,4 +1,4 @@
-Chapter 6: Adapting to Change: Techniques for Adapting to Changing Market Conditions
+Techniques for Adapting to Changing Market Conditions
 ====================================================================================
 
 Adapting to change is a key skill for any entrepreneur looking to build a successful business. In this chapter, we will explore techniques for adapting to changing market conditions.

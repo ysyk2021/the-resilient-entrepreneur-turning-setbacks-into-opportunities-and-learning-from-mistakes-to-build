@@ -1,4 +1,4 @@
-Chapter 8: Maintaining Physical and Mental Well-Being: Strategies for Managing Stress and Burnout
+Strategies for Managing Stress and Burnout
 =================================================================================================
 
 Maintaining physical and mental well-being is essential for entrepreneurs looking to weather setbacks and challenges. In this chapter, we will explore strategies for managing stress and burnout.

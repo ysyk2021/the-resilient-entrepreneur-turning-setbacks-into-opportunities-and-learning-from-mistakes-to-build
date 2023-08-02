@@ -1,4 +1,4 @@
-Chapter: Prioritizing Self-Care and Well-being
+Prioritizing Self-Care and Well-being
 ==============================================
 
 In this chapter, we will explore the importance of prioritizing self-care and well-being for resilient entrepreneurs. Running a successful business can be demanding, stressful, and overwhelming. Entrepreneurs often sacrifice their own well-being in pursuit of their goals. However, neglecting self-care can lead to burnout, decreased productivity, and hinder long-term success. This chapter will discuss the significance of self-care and provide practical strategies for incorporating it into an entrepreneur's life.

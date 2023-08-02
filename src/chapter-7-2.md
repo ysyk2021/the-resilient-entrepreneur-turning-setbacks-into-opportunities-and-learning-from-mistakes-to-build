@@ -1,4 +1,4 @@
-Chapter: Leveraging Support Networks During Challenging Times
+Leveraging Support Networks During Challenging Times
 =============================================================
 
 In this chapter, we will explore the importance of leveraging support networks during challenging times as a resilient entrepreneur. Building a strong support network can provide invaluable guidance, encouragement, and resources to navigate setbacks, learn from mistakes, and ultimately build a successful business. We will discuss the various types of support networks available and how to effectively leverage them.

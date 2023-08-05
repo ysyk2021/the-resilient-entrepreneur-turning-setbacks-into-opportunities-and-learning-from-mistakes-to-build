@@ -13,8 +13,6 @@ On the other hand, long-term goals are broader, overarching objectives that entr
 **The Importance of Balancing Short-Term and Long-Term Goals**
 --------------------------------------------------------------
 
-![Balancing Goals](https://images.unsplash.com/photo-1517048676732-5ef10de041e9)
-
 Balancing short-term and long-term goals is crucial for several reasons:
 
 1. **Maintaining Focus**: Short-term goals help entrepreneurs stay focused on immediate priorities and address pressing challenges. Long-term goals provide a sense of direction and purpose, ensuring that actions align with the broader vision of the business.

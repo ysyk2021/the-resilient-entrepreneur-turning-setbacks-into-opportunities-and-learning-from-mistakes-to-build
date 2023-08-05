@@ -11,8 +11,6 @@ Resilience is the ability to recover quickly from difficulties and adapt in the 
 **Cultivating a Growth Mindset**
 --------------------------------
 
-![Growth Mindset](https://images.unsplash.com/photo-1590025124616-d20f16a43c7d)
-
 Developing a growth mindset is a fundamental aspect of building resilience. A growth mindset is the belief that abilities and intelligence can be developed through effort, learning, and perseverance. Entrepreneurs with a growth mindset see setbacks as temporary and believe they have the power to overcome obstacles through dedication and continuous improvement.
 
 To cultivate a growth mindset, entrepreneurs should:
@@ -27,8 +25,6 @@ By adopting a growth mindset, entrepreneurs can transform setbacks into opportun
 
 **Building Self-Confidence and Self-Efficacy**
 ----------------------------------------------
-
-![Self-Confidence](https://images.unsplash.com/photo-1560807707-3b2b374fb1fd)
 
 Building self-confidence and self-efficacy is crucial for developing a resilient mindset. Self-confidence is the belief in one's abilities, while self-efficacy is the belief in one's ability to succeed in specific situations. Entrepreneurs with high levels of self-confidence and self-efficacy are more likely to persevere through challenges and setbacks.
 
@@ -45,8 +41,6 @@ By developing self-confidence and self-efficacy, entrepreneurs can cultivate a r
 **Developing Adaptive Thinking**
 --------------------------------
 
-![Adaptive Thinking](https://images.unsplash.com/photo-1533597518606-5f7cdd46fb6f)
-
 Developing adaptive thinking is an essential component of a resilient mindset. It involves the ability to think flexibly and adaptively in the face of change and uncertainty. Entrepreneurs who can adapt their thinking are better equipped to navigate unexpected challenges and adjust their strategies accordingly.
 
 To develop adaptive thinking, entrepreneurs should:
@@ -61,8 +55,6 @@ By cultivating adaptive thinking, entrepreneurs can develop the resilience neede
 
 **Practicing Self-Care and Stress Management**
 ----------------------------------------------
-
-![Self-Care](https://images.unsplash.com/photo-1542838132-f9a8e0a74375)
 
 Practicing self-care and stress management is vital for maintaining a resilient mindset. Entrepreneurship can be demanding and stressful, and neglecting self-care can lead to burnout and diminished resilience. Entrepreneurs should prioritize their well-being and incorporate strategies to manage stress effectively.
 

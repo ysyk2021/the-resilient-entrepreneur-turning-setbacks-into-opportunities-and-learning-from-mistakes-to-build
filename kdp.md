@@ -13,9 +13,6 @@ If you're looking for an inspirational guide to help you navigate the ups and do
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
-
-Certainly! Here are 20 Amazon search keywords related to "The Resilient Entrepreneur: Turning Setbacks into Opportunities and Learning from Mistakes to Build a Successful Business":
-
 1. Entrepreneurship
 2. Business Success
 3. Resilience

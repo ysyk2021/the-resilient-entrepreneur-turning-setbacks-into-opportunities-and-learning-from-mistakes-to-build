@@ -17,8 +17,6 @@ To effectively manage cash flow, entrepreneurs need to have a clear understandin
 **Developing a Cash Flow Management Plan**
 ------------------------------------------
 
-![Cash Flow Management](https://images.unsplash.com/photo-1553272677-9c3b6422bbe7)
-
 Developing a comprehensive cash flow management plan is crucial for entrepreneurs to maintain a healthy financial position. A well-structured plan helps identify potential cash flow gaps, allows for effective decision-making, and supports long-term business sustainability.
 
 To develop a cash flow management plan, entrepreneurs should consider the following steps:
@@ -37,8 +35,6 @@ To develop a cash flow management plan, entrepreneurs should consider the follow
 
 **Implementing Effective Financial Practices**
 ----------------------------------------------
-
-![Financial Practices](https://images.unsplash.com/photo-1580196040249-1e6386437c4d)
 
 In addition to developing a cash flow management plan, entrepreneurs should implement effective financial practices to optimize their financial position. These practices include:
 

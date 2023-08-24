@@ -1,5 +1,3 @@
-Chapter 3: Building Resilience
-==============================
 
 Building resilience is an essential skill for any entrepreneur looking to weather setbacks and achieve long-term success. In this chapter, we will explore the mindset of resilience and techniques for improving resilience.
 
@@ -38,5 +36,4 @@ Conclusion
 ----------
 
 In conclusion, building resilience is an essential skill for any entrepreneur looking to weather setbacks and achieve long-term success. By developing a mindset of resilience, using techniques for improving resilience, and following best practices for building resilience, entrepreneurs can become more adaptable, innovative, and successful in the face of challenges. By focusing on building resilience, entrepreneurs can prepare themselves and their businesses for the unexpected and emerge stronger in the long run.
-
 

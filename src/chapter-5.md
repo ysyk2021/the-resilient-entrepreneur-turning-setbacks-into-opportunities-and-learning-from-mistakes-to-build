@@ -1,5 +1,3 @@
-Chapter 5: Managing Risk and Uncertainty
-========================================
 
 Risk and uncertainty are inherent in entrepreneurship, but successful entrepreneurs are able to manage them effectively. In this chapter, we will explore techniques for identifying and managing potential risks, as well as strategies for navigating uncertainty.
 

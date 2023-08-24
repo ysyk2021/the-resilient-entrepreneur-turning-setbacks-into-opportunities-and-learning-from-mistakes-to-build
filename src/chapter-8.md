@@ -1,5 +1,3 @@
-Chapter 8: Maintaining Physical and Mental Well-Being
-=====================================================
 
 Maintaining physical and mental well-being is essential for entrepreneurs looking to weather setbacks and challenges. In this chapter, we will explore the importance of self-care and strategies for managing stress and burnout.
 

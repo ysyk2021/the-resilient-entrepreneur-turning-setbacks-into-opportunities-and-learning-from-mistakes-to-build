@@ -1,5 +1,3 @@
-Tracking progress and evaluating impact
-========================================================================================
 
 Measuring and evaluating resilience is essential for understanding its impact on business success and personal growth. In this chapter, we will explore techniques for defining metrics and Key Performance Indicators (KPIs) for measuring resilience, tracking progress, and evaluating impact.
 

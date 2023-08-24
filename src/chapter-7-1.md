@@ -1,5 +1,3 @@
-Building a Network of Mentors, Advisors, and Peers
-===============================================================================================
 
 Cultivating a supportive network is essential for entrepreneurs looking to build resilient businesses. In this chapter, we will explore why building a network of mentors, advisors, and peers is important, as well as techniques for cultivating this network.
 

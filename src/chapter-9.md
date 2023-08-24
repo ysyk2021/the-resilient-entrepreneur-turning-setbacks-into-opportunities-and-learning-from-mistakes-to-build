@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Common Entrepreneurial Challenges
-=======================================================
 
 Entrepreneurship is full of challenges that can be difficult to navigate. In this chapter, we will explore two common challenges faced by entrepreneurs and techniques for overcoming them.
 

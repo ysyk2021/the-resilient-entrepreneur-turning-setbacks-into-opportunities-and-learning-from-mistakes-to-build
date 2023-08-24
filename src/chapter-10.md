@@ -1,5 +1,3 @@
-Chapter 10: Measuring and Evaluating Resilience
-===============================================
 
 Measuring and evaluating resilience is essential for entrepreneurs looking to build and maintain resilient businesses. In this chapter, we will explore the importance of defining metrics and KPIs for resilience, as well as techniques for tracking progress and evaluating impact.
 

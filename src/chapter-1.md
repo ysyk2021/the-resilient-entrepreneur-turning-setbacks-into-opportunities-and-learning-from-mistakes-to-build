@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Entrepreneurship is a high-stakes endeavor that requires resilience in order to succeed. In this chapter, we will explore why resilience is critical for entrepreneurial success.
 

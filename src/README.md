@@ -8,3 +8,7 @@ Readers will learn how to cultivate a growth mindset, embrace failure as a learn
 If you're looking for an inspirational guide to help you navigate the ups and downs of entrepreneurship, then "The Resilient Entrepreneur" is the book for you. With its practical tips and empowering message, this book can help you turn setbacks into opportunities and achieve success in your business.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

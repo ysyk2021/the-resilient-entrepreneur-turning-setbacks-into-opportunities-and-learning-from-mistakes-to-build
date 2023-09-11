@@ -1,5 +1,4 @@
-Chapter: Tracking Progress and Evaluating Impact
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of tracking progress and evaluating the impact of setbacks on entrepreneurial ventures. We delve into strategies and techniques that resilient entrepreneurs can employ to effectively monitor their progress, measure success, and learn from their mistakes. By understanding the significance of tracking progress and evaluating impact, readers will gain valuable insights on how to turn setbacks into opportunities and build a successful business.
 
